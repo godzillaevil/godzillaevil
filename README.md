@@ -7,10 +7,11 @@ Meu nome é Anna Koczyla
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
   ### Você pode entrar em contato comigo 📫
-
+https://www.linkedin.com/in/anna-julia-koczyla-90a544327/
 anna.koczyla@escola.pr.gov.br
 
 _@Anna.koczyla_
 
 
-![](https://media1.tenor.com/m/vzAeThjGJLAAAAAC/nando-moura-bolsonaro-make-face.gif)
+![](https://media1.tenor.com/m/vzAeThjGJLAAAAAC/nando-moura-bolsonaro-make-face.gif).
+
